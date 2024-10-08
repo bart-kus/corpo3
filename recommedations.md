@@ -2,7 +2,7 @@
 
 
 ## EQUIPMENT
-
+- a nice mouse
 
 ## BENEFITS
 
