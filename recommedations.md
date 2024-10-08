@@ -7,6 +7,7 @@
 - car !!!
 - DESKS
   - 8K monitor
+  - ergonomic keyboard 
 
 ## BENEFITS
 
