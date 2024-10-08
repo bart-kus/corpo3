@@ -10,7 +10,8 @@ Please keep in mind that we will take money for them from your salaries ;)
 
 
 ## EVENTS
-
+- cinema at nights
+- bring your parents
 
 ## WORK TIME
 
