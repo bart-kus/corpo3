@@ -6,6 +6,7 @@
 - phone with buttons
 - car !!!
 - DESKS
+  - 8K monitor
 
 ## BENEFITS
 
