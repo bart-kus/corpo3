@@ -6,7 +6,7 @@
 
 ## BENEFITS
 - working medical care
-- 
+- more points
 
 ## EVENTS
 
