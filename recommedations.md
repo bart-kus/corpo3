@@ -3,6 +3,7 @@
 
 ## EQUIPMENT
 - a nice mouse
+- phone with buttons
 
 ## BENEFITS
 
