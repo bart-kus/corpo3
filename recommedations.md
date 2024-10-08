@@ -7,6 +7,8 @@
 - laptop stand
 - car !!!
 - DESKS
+  - 8K monitor
+  - ergonomic keyboard 
 
 ## BENEFITS
 
