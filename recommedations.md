@@ -7,7 +7,8 @@ Please keep in mind that we will take money for them from your salaries ;)
 
 
 ## BENEFITS
-
+- working medical care
+- more points
 
 ## EVENTS
 - cinema at nights
