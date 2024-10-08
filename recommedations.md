@@ -4,6 +4,7 @@
 ## EQUIPMENT
 - a nice mouse
 - phone with buttons
+- car !!!
 
 ## BENEFITS
 
