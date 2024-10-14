@@ -7,7 +7,7 @@ Please keep in mind that we will take money for them from your salaries ;)
 - a nice mouse
 - phone with buttons
 - laptop stand
-- car !!!
+- car to travel to our customers (and vacation) !!!
 - DESKS
   - 8K monitor
   - ergonomic keyboard 
