@@ -7,14 +7,14 @@ Please keep in mind that we will take money for them from your salaries ;)
 - a nice mouse
 - phone with buttons
 - laptop stand
-- car !!!!!!
+- sport and red car !!!!!!
 - DESKS
   - 8K monitor
   - ergonomic keyboard 
 
 ## BENEFITS
-- working medical care
-- more points
+- WORKING medical care
+- MORE POINTS!
 
 ## EVENTS
 - cinema at nights
